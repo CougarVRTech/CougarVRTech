@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @CougarVRTech
+- 👀 I’m interested in coding stupid things
+- 🌱 I’m currently learning nothing
+- 💞️ I’m looking to collaborate on nothing
+- 📫 How to reach me: cgrvrtech@gmail.com
+- 😄 Pronouns: Him/othy
+- ⚡ Fun fact: Im incredibly stupid
